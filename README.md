@@ -1,3 +1,3 @@
 # my-first-repo
 
-#Every thing is so good! Positive vides..
+#Every thing is so good in life! Positive vibes..
